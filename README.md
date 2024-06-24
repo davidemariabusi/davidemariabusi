@@ -12,7 +12,7 @@ When I'm not working I love to be with my family and hang out with my friends, f
 
 - [email](mailto://davidemaria.busi@gmail.com)
 - [twitter](https://twitter.com/davidemariabusi)
-- [instagram](https://www.instagram.com/web_daveloper)
+- [instagram](https://www.instagram.com/davidemariabusi)
 - [website](https://davidemariabusi.github.io)
 
 See ya 🤓
